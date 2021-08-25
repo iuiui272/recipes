@@ -1,8 +1,8 @@
 #DoCa® Recipes
 
 ––Blueberry jam
-
-•15 ml of 
+Rodney own Recipe
+•15 ml of suger
 
 •15 ml of blueberrys 🫐
 
